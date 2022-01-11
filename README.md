@@ -1,1 +1,1 @@
-https://olesia22.github.io/mimi_card/
+https://olesia22.github.io/mini_card/
